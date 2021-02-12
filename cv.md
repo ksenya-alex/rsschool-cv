@@ -9,7 +9,7 @@ After working the past three years as a senjor manager of marketig, I’ve devel
 4. html, css, javascript, react;
 5. I graduated from the Chelyabinsk state university from a specialty in state and municipal administration;
 Also i graduated from the South Ural State University from a specialty in finance and business analysis;
-6. English level - A2;
+6. English level - A2.
 
 https://www.linkedin.com/in/ksenya-ukhova-634741181/
 
