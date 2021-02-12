@@ -11,4 +11,6 @@ After working the past three years as a senjor manager of marketig, I’ve devel
 Also i graduated from the South Ural State University from a specialty in finance and business analysis;
 6. English level - A2;
 
+https://www.linkedin.com/in/ksenya-ukhova-634741181/
+
 
